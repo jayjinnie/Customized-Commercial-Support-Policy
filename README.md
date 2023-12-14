@@ -34,5 +34,5 @@
 **과학기술 정보통신부 잔관 표창, 데이터 신기술 분야 대 수상🎉**
 <div align="center">
 
-</d![bigcon](https://github.com/jayjinnie/Customized-Commercial-Support-Policy/assets/65335952/52d962a5-2fd9-48dd-8cd7-dda1da6ee8bb)
-iv>
+![bigcon](https://github.com/jayjinnie/Customized-Commercial-Support-Policy/assets/65335952/52d962a5-2fd9-48dd-8cd7-dda1da6ee8bb)
+</div>
